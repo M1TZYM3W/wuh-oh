@@ -2,8 +2,6 @@
 
 ♡ I'm friendly !! i don't byte! X3 <33
 
-![pony-town--♡🌺☆_^★, ⚪ Mew! __ OC ⚪ ○o｡♡-silly-wink-hearts-blush-blinking-padded-16x](https://github.com/M1TZYM3W/wuh-oh/assets/156886238/2b2a23ad-3c38-43b9-94a3-3d3671e022ad)
-
 ♡ It's Miiw! I'm usually talking to my friends or offtab.. I will always get back to u dearies !! ♡♡ [ mostly on pg srvr!! <3 ]
 
 ♡ I'm in love with adventure games n junkkk! im hyprsxual! <3
@@ -25,6 +23,10 @@
 ![luckycharms](https://github.com/M1TZYM3W/wuh-oh/assets/156886238/c5aee44a-a0a7-4ec2-ad68-024fc7769177)
 ![tumblr_oo9wfxRagd1w0rhm7o5_250](https://github.com/M1TZYM3W/wuh-oh/assets/156886238/fc7b8345-a727-4611-9541-ff9452bfb86e)
 ![tumblr-inline-p3x3n7l7m-B1u4yu7g-540](https://github.com/M1TZYM3W/wuh-oh/assets/156886238/1fdbc0af-76c7-40b2-baf1-a3a9c5ea6392)
+
+![tumblr_inline_mkfotk2ZvA1roozkr540](https://github.com/M1TZYM3W/wuh-oh/assets/156886238/28d5fc1f-2413-4929-be63-0c3576ca79a3)
+
+![pony-town--♡🌺☆_^★, ⚪ Mew! __ OC ⚪ ○o｡♡-silly-wink-hearts-blush-blinking-padded-16x](https://github.com/M1TZYM3W/wuh-oh/assets/156886238/2b2a23ad-3c38-43b9-94a3-3d3671e022ad)
 
 
 
